@@ -35,4 +35,4 @@ Includes:
 
 Please email me if you need the resources 
 - phutran.se@gmail.com
-- Write down your information
+- Write down your information when contacting me
